@@ -1,4 +1,4 @@
-<img src="https://work.bestfrend.xyz/img/bf_1689.jpg" width="100%" alt="">
+<img src="https://work.bestfrend.xyz/img/bf_1545.jpg" width="100%" alt="">
 
 # Ian Ricketts
 
