@@ -2,7 +2,7 @@
 
 # Ian Ricketts
 
-I build brands and run the businesses behind them. Central Oregon, headed to Bellingham.
+I build brands and run the businesses behind them. Central Oregon currently.
 
 **[work.bestfrend.xyz](https://work.bestfrend.xyz)** — the portfolio.
 
